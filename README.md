@@ -1,3 +1,5 @@
+<img src="assets/facty.gif" alt="a" /> <img src="assets/miku.gif" alt="a" /> <img src="assets/cirno.gif" alt="a" /> <img src="assets/doctor.gif" alt="a" />
+
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
 <div align="center">
