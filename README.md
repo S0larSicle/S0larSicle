@@ -14,7 +14,7 @@
 
 <p>trying to figure ts out. how are you guys making these omg 😭😭😭 whisper tips to me please</p>
 
-<img src="assets/tsuki-chan-seal.gif" alt="a" /> <img src="assets/XVyvVX3.gif" alt="a" /> 
+<img src="assets/tsuki-chan-seal.gif" alt="a" /> <img src="assets/" alt="a" /> 
 
 </div>
 
