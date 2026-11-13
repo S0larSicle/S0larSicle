@@ -1,4 +1,4 @@
-<img src="assets/facty.gif" alt="a" /> <img src="assets/miku.gif" alt="a" /> <img src="assets/cirno.gif" alt="a" /> <img src="assets/doctor.gif" alt="a" />
+<img src="assets/facty.gif" alt="a" /> <img src="assets/miku.gif" alt="a" /> <img src="assets/cirno.gif" alt="a" /> <img src="assets/jermiku.gif" alt="a" /> <img src="assets/vinesauce.gif" alt="a" /> 
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
