@@ -14,6 +14,7 @@
 <br>
 
  <img src="assets/tsuki-chan-seal.gif" alt="a" /> 
+ <br>
 · · ─ ·✶· ─ · ·
  <details>
   <summary>About me</summary>
