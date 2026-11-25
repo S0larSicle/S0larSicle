@@ -16,11 +16,14 @@
   · · ─ ·✶· ─ · ·
  <details>
   <summary>About me</summary>
--My name is Leighton :D I am 18 years old, soon to be 19 on January 27th.
+-My name is Leighton/Aubrey :D I am 18 years old, soon to be 19 on January 27th.
    <br>
    <br>
    -I am American (I don't really want to be 😭)
  <br>
+   <br>
+   I am genderfluid
+   <br>
    <br>
 -I love seals, specifically harp seals. They are my favorite thing on planet earth
    <br>
