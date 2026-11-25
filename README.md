@@ -82,7 +82,6 @@
   <br>
   -If I was to add you on another app, don't spam me.
   <br>
-  <br>
 </details>
 · · ─ ·✶· ─ · ·
 <br>
