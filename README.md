@@ -14,6 +14,80 @@
 <br>
 
  <img src="assets/tsuki-chan-seal.gif" alt="a" /> 
+· · ─ ·✶· ─ · ·
+ <details>
+  <summary>About me</summary>
+-My name is Leighton :D I am 18 years old, soon to be 19 on January 27th.
+   <br>
+   <br>
+   -I am American (I don't really want to be 😭)
+ <br>
+   <br>
+-I love seals, specifically harp seals. They are my favorite thing on planet earth
+   <br>
+   <br>
+   -My dream is to work in the medical field. I plan to go into Phlebotomy or Pharmacy work :D
+   <br>
+   <br>
+   -I'm generally friendly unless you decide to make drama out of nothing. I have more important things to deal with in my life.
+   <br>
+   <br>
+   -I like to draw, make bracelets, play games, edit, and decorate my room :D
+   <br>
+   <br>
+   -I suspect some mental issues but I will not list any until I am evaluated or diagnosed
+   <br>
+   <br>
+   -I have horrible eyesight
+</details>
+· · ─ ·✶· ─ · ·
+<details>
+  <summary>DNI</summary>
+-People who will use me as a therapist
+  <br>
+  <br>
+-People seeking relationships (I am in a happy and loving relationship with my boyfriend :D)
+  <br>
+  <br>
+  -Manipulative people
+  <br>
+  <br>
+  -Low empaths (no offense)
+  <br>
+  <br>
+  -Paraphiles
+  <br>
+  <br>
+  -People who don't understand the concept of a life outside of ponytown.
+  <br>
+  <br>
+  People under 14 and people over 30. 
+  <br>
+  <br>
+  -Generally just be a decent person and don't be weird to me and I'll be fine with you. 
+  <br>
+  <br>
+  (I am a very chill person but I've met some weirdooos on here.)
+
+</details>
+· · ─ ·✶· ─ · ·
+<details>
+  <summary>Boundaries</summary>
+  -Please do not say you love me, even platonically. There's other ways to convey fondness.
+  <br>
+  <br>
+  -Do not talk to me about SH or cancer at all unless we're close.
+  <br>
+  <br>
+  -Treat me like an actual human who has things to do. 
+  <br>
+  <br>
+  -If I was to add you on another app, don't spam me.
+  <br>
+  <br>
+</details>
+· · ─ ·✶· ─ · ·
+
 
 </div>
 
