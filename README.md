@@ -57,7 +57,7 @@
   -People who don't understand the concept of a life outside of ponytown.
   <br>
   <br>
-  People under 14 and people over 30. 
+  -People under 14 and people over 25. 
   <br>
   <br>
   -Generally just be a decent person and don't be weird to me and I'll be fine with you. 
