@@ -22,7 +22,7 @@
    -I am American (I don't really want to be 😭)
  <br>
    <br>
-   I am genderfluid
+   -I am genderfluid
    <br>
    <br>
 -I love seals, specifically harp seals. They are my favorite thing on planet earth
