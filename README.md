@@ -88,6 +88,14 @@
   <br>
 </details>
 · · ─ ·✶· ─ · ·
+<details>
+  <summary>𝗜𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝘀
+   <br>
+    
+(uncategorized for now)</summary>
+  Jerma985, Vinesauce, Opus Magnum, Postal 2, Osomatsu-San, Fact Attack Adventures, Touhou, Buckshot Fantasy, Splatoon, Fortnite, Deadpool, Ena (love Ena Dream BBQ), Garry's Mod, Animal Crossing, The Legend of Zelda (Breath of the Wild + Twilight Princess), Pikmin, Osu!, Taiko no Tatsujin, FNAF, Façade, Class of 09 (not flip side.), Cookie Run Kingdom, Mario 64 Ds port, Higurashi + Umineko When They Cry, Scribblenauts, Girls Last Tour, Serial Experiments Lain, Yo-Kai Watch, Eddsworld, Black Mirror, Moral Orel, House MD, Saiki K, Kill Bill, JoJo's Bizarre Adventure, Death Note, (more to be added) 
+</details>
+· · ─ ·✶· ─ · ·
 <br>
 <br>
 
