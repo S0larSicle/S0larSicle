@@ -78,7 +78,7 @@
   -Please do not say you love me, even platonically. There's other ways to convey fondness.
   <br>
   <br>
-  -Do not talk to me about SH or cancer at all unless we're close.
+  -Do not talk to me about SH or cancer at all please unless we're close.
   <br>
   <br>
   -Treat me like an actual human who has things to do. 
