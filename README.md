@@ -15,7 +15,7 @@
   <br>
   · · ─ ·✶· ─ · ·
  <details>
-  <summary>About me</summary>
+  <summary>𝗔𝗯𝗼𝘂𝘁 𝗺𝗲</summary>
 -My name is Leighton/Aubrey :D I am 18 years old, soon to be 19 on January 27th.
    <br>
    <br>
@@ -44,7 +44,7 @@
 </details>
 · · ─ ·✶· ─ · ·
 <details>
-  <summary>DNI</summary>
+  <summary>𝗗𝗡𝗜</summary>
 -People who will use me as a therapist
   <br>
   <br>
@@ -74,7 +74,7 @@
 </details>
 · · ─ ·✶· ─ · ·
 <details>
-  <summary>Boundaries</summary>
+  <summary>𝗕𝗼𝘂𝗻𝗱𝗮𝗿𝗶𝗲𝘀</summary>
   -Please do not say you love me, even platonically. There's other ways to convey fondness.
   <br>
   <br>
